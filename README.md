@@ -2,7 +2,7 @@
 This is a Calculator for buildings in Monster Warlord. Its a program that was lost because gamevil deleted its forums.
 I am merely repost this because the original post has died. It has all buildings.
 
-original post: http://m.gamevilusa.com/forums/showthread.php?109943-Building-Calculator
+original post (wich gamevil deleted) : http://m.gamevilusa.com/forums/showthread.php?109943-Building-Calculator
 
 His words:
 
